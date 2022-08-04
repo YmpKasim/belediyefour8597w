@@ -1,1 +1,0 @@
-# belediyefour8597w
